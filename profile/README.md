@@ -1,2 +1,2 @@
 # Welcome to startUpError
-We are an indie game dev organization ran by 4 people. Our goals are to make cool games for anyone to enjoy!
+We are an indie game dev organization with 6 members, all working together to achieve the creation of great games for the public to enjoy! More information to come...
